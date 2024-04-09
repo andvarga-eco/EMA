@@ -10,3 +10,5 @@ Curso Economía del Medio Ambiente, Uninorte
 [Biodiversidad](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/ERYKIXdrDkZFg6f0MIzyapcB9_yL27szspWYueTF1ySlBA?e=a9bQKA)
 
 [Sistemas no lineales y cambios de régimen](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EXYRJGlZkfNHqrtNvWi6XbgBMWbFhQVWj8x-gNef5PgxXg?e=FQsn6r)
+
+[Externalidades](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EQtOEHzo0sZBjz5Ifxk1MKgBIt4vDwaupN2o_BfaOJy5QA?e=XR5gqe)

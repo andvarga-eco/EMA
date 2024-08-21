@@ -7,3 +7,5 @@ Curso Economía del Medio Ambiente, Uninorte
 
 [Tema 2: De la biodiversidad al bienestar humano](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/ERYKIXdrDkZFg6f0MIzyapcB9_yL27szspWYueTF1ySlBA?e=V3gNJg)
 
+[Tema 3: No linealidades](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EXYRJGlZkfNHqrtNvWi6XbgBMWbFhQVWj8x-gNef5PgxXg?e=OzgfzG)
+

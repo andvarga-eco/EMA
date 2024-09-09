@@ -9,3 +9,4 @@ Curso Economía del Medio Ambiente, Uninorte
 
 [Tema 3: No linealidades](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EXYRJGlZkfNHqrtNvWi6XbgBMWbFhQVWj8x-gNef5PgxXg?e=OzgfzG)
 
+[Tema 4: Riesgo, incertidumbre, y toma de decisiones](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EQdBjFOJgoFIjCqPL_VImCEB__wioXLthGnrKqISXJXNFA?e=YawTHE)

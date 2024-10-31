@@ -14,3 +14,5 @@ Curso Economía del Medio Ambiente, Uninorte
 [Tema 5: Externalidades](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EQtOEHzo0sZBjz5Ifxk1MKgBIt4vDwaupN2o_BfaOJy5QA?e=rPLqzj)
 
 [Tema 6: Instrumentos de política ambiental](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/Efk1QQetXilPmxbIOeXTyIEBWFc8NQVuXwmgoUyeXMf-hw?e=Kx40Q2)
+
+[Tema 7: Valores, valoración, y procesos de decisión](https://uninorte-my.sharepoint.com/:b:/g/personal/andresmv_uninorte_edu_co/EUg4ZE28FC9Dm0KV3zDQ7FcBAezBXEcNww6oe3F7XHJHBw?e=F8Ec4F)
